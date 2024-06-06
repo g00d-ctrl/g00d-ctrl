@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @g00d-ctrl
+- 👀 I’m interested in ... Minecreft
+- 🌱 I’m currently learning ... Your mom
+- 💞️ I’m looking to collaborate on ... Amogus
+- 📫 How to reach me ...
+- 😄 Pronouns: ... Ummmmmmmm
+- ⚡ Fun fact: ... Cheese
+- 
